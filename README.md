@@ -1,4 +1,4 @@
-## Hi there 👋 I'm Birarpanjot Singh
+## Hi there 👋 I'm Birarpanjot Singh Kanwer
 
 ## 👨🏻‍💻 About Me:
 
